@@ -1,0 +1,2 @@
+Figma link of OKBOZ
+https://www.figma.com/design/791NY5akxWEc2PVrYls28V/OkBOZ-%7C-Delivery-App?node-id=0-1&t=pPtgffgwKMgv9fdK-1
